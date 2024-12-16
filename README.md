@@ -1,1 +1,1 @@
-websitge link - https://rishav-0.github.io/Hoodie/
+Hosted link - https://rishav-0.github.io/Hoodie/
